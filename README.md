@@ -1,6 +1,6 @@
 # ALL-SEEING-CYBERNETIC-EYE
 
-[!alt text](https://i.ibb.co/p6w8nyt0/Chat-GPT-Image-Mar-28-2025-10-27-38-PM.png)
+[!alt text]([url=https://ibb.co/PsjntQ7m][img]https://i.ibb.co/p6w8nyt0/Chat-GPT-Image-Mar-28-2025-10-27-38-PM.png[/img][/url])
 
 ### Entity Template
 
