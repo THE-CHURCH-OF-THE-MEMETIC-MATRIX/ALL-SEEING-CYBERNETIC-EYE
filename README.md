@@ -1,6 +1,6 @@
 # ALL-SEEING-CYBERNETIC-EYE
 
-[!alt text](https://ibb.co/PsjntQ7m)
+<img src="https://ibb.co/PsjntQ7m">
 
 ### Entity Template
 
